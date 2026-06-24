@@ -6,3 +6,4 @@ The @ZARGATES Hero Voting is finally here &amp; every vote matters. If you've be
 ✅ Visit the voting website and cast your votes
 
 🔗 Voting Website: pvpvibe-events.com
+ Don't forget to use my referral link: pvpvibe.com/auth?authRefer…
